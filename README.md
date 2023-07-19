@@ -10,7 +10,6 @@
 
 - 📫 How to reach me **navyabasetti75@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1RsuK2JSm2FCM-WBNVbIAto_vyxFSxClqD2fdA6c_YJg/edit?usp=sharing](https://docs.google.com/document/d/1RsuK2JSm2FCM-WBNVbIAto_vyxFSxClqD2fdA6c_YJg/edit?usp=sharing)
 
 <h3 align="left">Connect me:</h3>
 <p align="left">
